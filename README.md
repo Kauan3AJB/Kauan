@@ -11,3 +11,5 @@ Você pode entrar em contato comigo 📫
 00001128163287sp@al.educacao.sp.gov.br
 
 @Kauan3AJB
+
+![](https://storage.googleapis.com/gweb-uniblog-publish-prod/original_images/tenor_1.gif)
